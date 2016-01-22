@@ -40,6 +40,7 @@ Let rise until double in bulk (usually an hour, sometimes more), then roll out t
 ![Roll out big, but keep the dough thick](images/cinnamon-rolls-01_rolled-out.jpg)
 
 You will probably need to stretch it out and shape it into a rectangle.  Before rolling up the dough, spread with butter.  Mix together 1/2lb dark brown sugar and 4 tsp cinnamon, and sprinkle on top. Leave a small strip buttered but no cinnamon mix - this will seal up the roll. 
+
 ![COVER in Cinnamon / Brown Sugar mix](images/cinnamon-rolls-02_covered-in-cinnamonandsugar.jpg)
 
 Cut rolls into 1 1/4" segments and put into greased pans.  Let rise in a warm spot until light & double in size (usually an hour).  
