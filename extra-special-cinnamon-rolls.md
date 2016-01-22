@@ -59,3 +59,10 @@ Beat butter till fluff.  Gradually add 2 cups of the powedered sugar, beating we
 
 Slowly beat in remaining powdered sugar.  Beat in additional milk if needed to reach spreadding consistency.
 
+![Roll out big, but keep the dough thick](https://github.com/kissmetrics/recipes/images/cinnamon-rolls-01_rolled-out.jpg)
+![COVER in Cinnamon / Brown Sugar mix](https://github.com/kissmetrics/recipes/images/cinnamon-rolls-02_covered-in-cinnamonandsugar.jpg)
+![Let rise long enough that they fill out the pan](https://github.com/kissmetrics/recipes/images/cinnamon-rolls-03_after-rising-in-pans.jpg)
+![Flakey](https://github.com/kissmetrics/recipes/images/cinnamon-rolls-04_done.jpg)
+![Add frosting](https://github.com/kissmetrics/recipes/images/cinnamon-rolls-05_frosted.jpg)
+![Caramel Pecan Finished](https://github.com/kissmetrics/recipes/images/cinnamon-rolls-06_caramel-pecan.jpg)
+
