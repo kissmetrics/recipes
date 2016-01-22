@@ -36,7 +36,14 @@ Beat and let stand until light and full of bubbles
 
 *Tip: don't over-flour.  The dough should be soft but not flaking apart*
 
-Let rise until double in bulk (usually an hour, sometimes more), then roll out to about 22 inches across.  You will probably need to stretch it out and shape it into a rectangle.  Before rolling up the dough, spread with butter.  Mix together 1/2lb dark brown sugar and 4 tsp cinnamon, and sprinkle on top.  Cut rolls into 1 1/4" segments and put into greased pans.  Let rise in a warm spot until light & double in size (usually an hour).  
+Let rise until double in bulk (usually an hour, sometimes more), then roll out to about 22 inches across.  
+![Roll out big, but keep the dough thick](images/cinnamon-rolls-01_rolled-out.jpg)
+
+You will probably need to stretch it out and shape it into a rectangle.  Before rolling up the dough, spread with butter.  Mix together 1/2lb dark brown sugar and 4 tsp cinnamon, and sprinkle on top.  
+![COVER in Cinnamon / Brown Sugar mix](images/cinnamon-rolls-02_covered-in-cinnamonandsugar.jpg)
+
+Cut rolls into 1 1/4" segments and put into greased pans.  Let rise in a warm spot until light & double in size (usually an hour).  
+![Let rise long enough that they fill out the pan](images/cinnamon-rolls-03_after-rising-in-pans.jpg)
 
 Bake in a 375°-400° oven for 20 minutes or until done.
 
@@ -59,9 +66,6 @@ Beat butter till fluff.  Gradually add 2 cups of the powedered sugar, beating we
 
 Slowly beat in remaining powdered sugar.  Beat in additional milk if needed to reach spreadding consistency.
 
-![Roll out big, but keep the dough thick](images/cinnamon-rolls-01_rolled-out.jpg)
-![COVER in Cinnamon / Brown Sugar mix](images/cinnamon-rolls-02_covered-in-cinnamonandsugar.jpg)
-![Let rise long enough that they fill out the pan](images/cinnamon-rolls-03_after-rising-in-pans.jpg)
 ![Flakey](images/cinnamon-rolls-04_done.jpg)
 ![Add frosting](images/cinnamon-rolls-05_frosted.jpg)
 ![Caramel Pecan Finished](images/cinnamon-rolls-06_caramel-pecan.jpg)
