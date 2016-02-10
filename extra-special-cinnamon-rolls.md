@@ -9,6 +9,7 @@
 * Put eggs in a bowl of warm-hot tap water to bring to room temp.
 * Keep the dough warm but not hot when you are working with it and letting it stand.  Yeast doesn't like to be cold.
 * You can use all purpose, but I find that bread flour works better
+* Use dental floss to cut the rolled up dough - slide under, wrap around and pull together to make a nice clean cut.
 * **This is a huge recipe.  You can 1/2 it (I usually do)** 
 
 ##Rolls
