@@ -10,7 +10,7 @@ People in the office have been known to put this on everything, even breakfast c
 * ~1g Sodium hexametaphosphate (Optional. Unnecessary, but makes the result more stable)
 * Dash Cayenne (Optional)
 
-## Equiptment
+## Equipment
 * Vacuum chamber with ~2 quart bag
 * Immersion circulator
 * Blender
