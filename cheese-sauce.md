@@ -7,7 +7,7 @@ People in the office have been known to put this on everything, even breakfast c
 * 600g milk
 * 25g Sodium citrate
 * 5g Kosher salt ( or to taste depending on cheese )
-* \>1g Sodium hexametaphosphate (Optional. Unnecessary, but makes the result more stable)
+* ~1g Sodium hexametaphosphate (Optional. Unnecessary, but makes the result more stable)
 * Dash Cayenne (Optional)
 
 ## Equiptment
