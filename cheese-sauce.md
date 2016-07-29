@@ -19,6 +19,6 @@ People in the office have been known to put this on everything, even breakfast c
 1. Cube cheese ~1 inch
 1. Add all ingredients to bag
 1. Pull vacuum and seal 
-1. Cool in water bath @167F for 15 minutes
+1. Cook in water bath @167F for 15 minutes
 1. Transfer contents of bag to blender
 1. Blend until smooth
