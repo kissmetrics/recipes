@@ -16,7 +16,7 @@ People in the office have been known to put this on everything, even breakfast c
 * Blender
 
 ## Procedure
-1. Cube cheese \>1 inch
+1. Cube cheese ~1 inch
 1. Add all ingredients to bag
 1. Pull vacuum and seal 
 1. Cool in water bath @167F for 15 minutes
